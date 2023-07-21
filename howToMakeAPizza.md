@@ -20,6 +20,7 @@ Como hacer pizza
        6. con un poco de harina sobre la mesa de trabajo comenzamos a estirar y darle forma de pizza.
        7. Agregamos salsa, mozarrella y complementos al gusto.
        8. AL horno hasta que este dorado los bordes. 
+       9. servir con parmesano.
 
     
 * Pasos para preparar una pizza:
